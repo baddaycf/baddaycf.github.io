@@ -1,1 +1,0 @@
-# baddaycf.github.io
